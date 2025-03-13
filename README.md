@@ -1,2 +1,6 @@
 # Drop-Psicake
-&lt;Calúnia, difamação, injúria&lt;
+<Cálunia
+<Difamação
+<Injúria
+<Crime contra a Honra
+<
